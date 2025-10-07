@@ -51,7 +51,7 @@
 
 ---
 
-https://holopin.me/nithins18)](https://holopin.io/@nithins18
+[![An image of @nithins18's Holopin badges, which is a link to view their full Holopin profile](https://holopin.me/nithins18)](https://holopin.io/@nithins18)
 
 ---
 
