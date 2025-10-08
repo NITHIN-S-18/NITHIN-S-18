@@ -1,4 +1,4 @@
-# Hi, I'm Nithin 👋  
+# Hi, I'm Nithin S 👋  
 
 💻 **Frontend Developer | Web Enthusiast | Problem Solver**  
 
